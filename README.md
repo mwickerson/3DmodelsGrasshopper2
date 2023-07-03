@@ -1,0 +1,6 @@
+# 3DmodelsGrasshopper2
+3D models in Grasshopper 2.0
+
+***DOWNLOAD EVERYTHING FOR PRIVATE AND EDUCATIONAL USE ONLY***
+
+***CONTACT MICHAEL WICKERSON at mwickerson999@.gmail.com FOR COMMERCIAL USE***
